@@ -1,4 +1,4 @@
-# [DIMA.](https://www.dima.nl)
+# We Are [DIMA.](https://www.dima.nl)
 
 <br><br>
 
